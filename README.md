@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AymanZN
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning new stuff
